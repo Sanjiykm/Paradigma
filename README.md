@@ -1,0 +1,2 @@
+# Paradigma
+My actions 
